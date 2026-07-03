@@ -1,4 +1,4 @@
-
+no-ban Script for murderers vs sheriffs 2 is the best murderers vs sheriffs 2 Script, featuring no cooldown and god mode. Safe and powerful for all
 
 
 
